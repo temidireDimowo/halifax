@@ -46,6 +46,16 @@ You can find many big grocery stores such as Walmart, Sobeys, and Atlantic Super
 For Indian groceries, there are many options. The best option that I came across so far is [New India Bazaar](https://goo.gl/maps/ZvWA2WzfyWnQhtQB8). Some other options are [BIGS](https://g.page/bigstorehalifax?share) and [Namaste Indian grocery](https://goo.gl/maps/Lrmj4Vgo5tgz8qYe7).
 It is recommended that you sign up for memberships for these grocery stores, and have apps like Flipp set up so you get notified when any worthwhile deals are on. Note that on Tuesdays, there's a 10% discount for students at stores such as Pete's, Atlantic Superstores and Sobey's.
 
+## Home Essentials
+
+There are stores like Canadian Tire, RONA, Dollarama, Costco, and IKEA that are very helpful in setting up your home.
+
+- [Canadian Tire](https://www.canadiantire.ca/en.html) and [RONA](https://www.rona.ca/en) are quite similar. They offer a wide variety of electronics, hardware, and home appliances. If you need to make copies of your keys, they also provide that service.
+- [Dollarama](https://www.dollarama.com/en-ca/) is the best shop for affordable yet good-quality utensils. They have a huge collection of kitchenware, home essentials, and decor items.
+- [Costco](https://www.costco.ca/) is ideal if you're part of a big family or a group of people. You can buy everything in bulk, and it’s cheaper compared to other stores. The only catch is that you need a [membership](https://www.costco.ca/join-costco.html).
+- [IKEA](https://www.ikea.com/ca/en/) is the best place to get quality, affordable furniture and home decor for your space.
+
+
 ## Health insurance
 
 You need to register yourself for provincial health insurance referred to as **Medical Service Insurance** (MSI). All individuals including work/study permit holders, apart from permanent residents and Canadian residents are eligible to obtain the insurance. For the registration, you need to call to MSI office (1-800-563-8880). Upon registration, they will send a form; you need to send the filled form along with a copy of your study/work permit or PR to get the MSI cards.
