@@ -39,6 +39,7 @@ As for places to find rentals, you can try looking at Kijiji or Facebook marketp
 Halifax has public buses (but not metro/train). Within and around Halifax downtown, buses cover the area well with decent frequency. As you go far from the downtown, the network starts thinning.
 Each bus ticket costs C$2.75 per ride; each ticket is valid for 90 minutes. If you are taking the bus every day, you may obtain a monthly pass for C$82.50. There is a student pass for Dal students (fee included in their college fee). Dal employees may opt-in for Xpass for around C$60 per month. More details about the Halifax transit system can be found [online](https://www.halifax.ca/transportation/halifax-transit/fares-tickets-passes).
 Keep in mind that the bus stops are not as frequent outside of downtown, and you may need to have some mode of transport to get there. The buses here do have a provision for carrying your bicycle, and you can find bicycles for fairly cheap. Keep in mind, however, that riding a bicycle may be quite uncomfortable during the winter.
+One of the top apps for know what bus to pick or stand to go to and wait for your bus is [Transit](https://transitapp.com/en/region/halifax)
 
 ## Groceries
 
